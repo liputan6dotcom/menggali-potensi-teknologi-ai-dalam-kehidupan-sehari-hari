@@ -1,0 +1,1 @@
+# menggali-potensi-teknologi-ai-dalam-kehidupan-sehari-hari
